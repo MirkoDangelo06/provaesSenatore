@@ -6,6 +6,6 @@
  
  ***ritornare indietro a kapal karam***
 
- # **VIVA KURUMIIIIIIIIIIIIII!!!!!!!!!!!!!!!!!!**
+
 
  
